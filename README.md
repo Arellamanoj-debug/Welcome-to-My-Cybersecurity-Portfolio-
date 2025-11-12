@@ -10,4 +10,4 @@
 - I Value integrity,contionious learning and adaptability
 ## Contact
 - Linkedin - www.linkedin.com/in/manoj-kumar-b6a804173
-- Email - Arellamanoj1997@gmail.com
+- Email - Arellamanojkumar1997@gmail.com
